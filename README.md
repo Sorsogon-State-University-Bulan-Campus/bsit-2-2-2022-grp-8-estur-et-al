@@ -14,6 +14,7 @@ Hey there! My name is Charisse Erika Gerero, here are some random facts about me
 - Watching (korean, chinese, thai) dramas idolizing kpop group EXO, and singing are my hobbies.
 - [Facebook](https://www.facebook.com/cchariseerika.mmikesiri1127)
 - [Phone#](09127593103)
+
 Hey there! My name is Rona Guban, here are some random facts about me!
 
 - I am 20 yrs old and was born on October 27, 2001.
@@ -22,12 +23,13 @@ Hey there! My name is Rona Guban, here are some random facts about me!
 - Reading books makes me happy, thats why it bacame my hobby.
 - [Facebook](https://www.facebook.com/rona.guban.58)
 - [Phone#](09511738253)
+
 Hey there! My name is Carie Jane C. Estur, here are some random facts about me!
 
 - I am 20 yrs old and was born on July 10, 2001
 - I live in Bulala, Magellanes, Sorsogon
 - I am a 2nd year BSIT student at Sorsogon State University Bulan Campus
-- I love singing because it makes me happy.
+- I love singing because it makes me happy, and it bacame my hobby since then.
 - [Facebook](https://www.facebook.com/cariejane.estur)
 - [Phone#](09654329161)
 
